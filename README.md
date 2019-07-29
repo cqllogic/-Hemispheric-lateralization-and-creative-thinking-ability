@@ -1,1 +1,1 @@
-# -Hemispheric-lateralization-and-creative-thinking-ability
+# Hemispheric lateralizatio and creativity
